@@ -8,7 +8,7 @@
 
 [官网](http://www.tecostudio.cn/)
 
-[论坛](https://teco.coldregion.top/)
+[论坛](https://bbs.tecostudio.cn/)
 
 
 **「TecoStudio」**，简称 **「TECO」** 成立于 2020.2.22 ，于 2022.7.22 在 MCBBS 上创立小组，是一个 Minecraft 综合团队。
@@ -20,4 +20,4 @@
 欢迎加入我们！\
 QQ群:593960178
 
-入组请阅读 [TECO重大变更公告](https://teco.coldregion.top/d/72)
+入组请阅读 [TecoStudio小组申请帖](https://bbs.tecostudio.cn/d/73)
