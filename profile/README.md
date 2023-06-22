@@ -18,6 +18,6 @@
 除此之外，TecoStudio 团队是一个以游戏技巧（红石方向）和地图制作为主，综合服务器插件、联机教程和材质包等多个领域的综合性团队。
 
 欢迎加入我们！\
-QQ群:593960178
+QQ审核群:790182308
 
-入组请阅读 [TecoStudio小组申请帖](https://bbs.tecostudio.cn/d/73)
+入组请阅读 [([https://bbs.tecostudio.cn/d/73]([https://www.mcbbs.net/thread-1406076-1-1.html](https://www.mcbbs.net/thread-1406076-1-1.html)))](https://www.mcbbs.net/thread-1406076-1-1.html)https://www.mcbbs.net/thread-1406076-1-1.html
