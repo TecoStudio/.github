@@ -20,4 +20,4 @@
 欢迎加入我们！\
 QQ审核群:790182308
 
-入组请阅读 [([https://bbs.tecostudio.cn/d/73]([https://www.mcbbs.net/thread-1406076-1-1.html](https://www.mcbbs.net/thread-1406076-1-1.html)))](https://www.mcbbs.net/thread-1406076-1-1.html)https://www.mcbbs.net/thread-1406076-1-1.html
+入组请阅读 [https://www.mcbbs.net/thread-1406076-1-1.html](https://www.mcbbs.net/thread-1406076-1-1.html)
